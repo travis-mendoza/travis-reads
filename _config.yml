@@ -1,4 +1,6 @@
 theme: minima
 title: Travis Reads
-# author: Travis Mendoza
+author: 
+  name: Travis Mendoza
+  email: travmendoz@gmail.com
 description: My notes, highlights, summaries and opinions of the content I've been consuming
