@@ -3,7 +3,7 @@ title: "White Noise"
 date: 2023-07-11
 ---
 
-In our conversations leading up to see an LCD Soundsystem concert at Red Rocks, my friend Kyle brought up their song "new body rhumba" which is from the 2022 film White Noise. This film is adapted from a book by the same name, in which an American town is threatened by a poisonous chemical cloud they call "The Airborne Toxic Event". Kyle and I casually discussed this morbid and fascinating idea while we worked together to test a new space laser. 
+In our conversations leading up to seeing an LCD Soundsystem concert at Red Rocks, my friend Kyle brought up their song "new body rhumba" which is from the 2022 film White Noise. This film is adapted from a book by the same name, in which an American town is threatened by a poisonous chemical cloud they call "The Airborne Toxic Event". Kyle and I casually discussed this morbid and fascinating idea while we worked together to test a new space laser. 
 
 Kyle had the book at home and loaned it to me to read. I naively assumed that he had enjoyed the book and was recommending it to me. Here's what I thought of _White Noise_ by Don DeLillo.
 
