@@ -36,7 +36,7 @@ Singers were the instruments of public relations and marketing for Queen Rhaenys
 
 ---
 
-_thrice I tried to take her north beyond the Wall,” Alysanne wrote to Jaehaerys, “but every time she veered back south again and refused to go. Never before has she refused to take me where I wished to go. I laughed about it when I came down again, so the black brothers would not realize anything was amiss, but it troubled me then and it troubles me still.”_
+_"Thrice I tried to take her north beyond the Wall,” Alysanne wrote to Jaehaerys, “but every time she veered back south again and refused to go. Never before has she refused to take me where I wished to go. I laughed about it when I came down again, so the black brothers would not realize anything was amiss, but it troubled me then and it troubles me still.”_
 
 ---
 
