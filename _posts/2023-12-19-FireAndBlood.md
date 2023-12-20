@@ -1,6 +1,6 @@
 ---
-title: "Fire & Blood”
-date: 2023-12-10
+title: "Fire & Blood"
+date: 2023-12-19
 ---
 
 ![Fire & Blood cover](https://github.com/travis-mendoza/travis-reads/blob/main/media/fire_and_blood/cover.jpg?raw=true)
